@@ -1,4 +1,4 @@
-![](/images/organization-background-2.png)
+![](/images/organization-background-1.png)
 
 <!--
 
