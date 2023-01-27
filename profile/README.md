@@ -1,4 +1,4 @@
-## Hi there 👋
+![](/images/organization-background-2.png)
 
 <!--
 
